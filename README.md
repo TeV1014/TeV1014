@@ -1,0 +1,4 @@
+- 👁️  Hi, I’m @TeV1014
+-  Pronouns: He / Him
+-  I’m interested in tech hygeine, security, digital medicine, and understanding how to get by without passwords.
+-  Fun fact: The ✨Human Consciousness OS✨ predates Macintosh and IBM.
