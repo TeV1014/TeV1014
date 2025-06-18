@@ -1,4 +1,5 @@
-- 👁️  Hi, I’m @TeV1014
--  Pronouns: He / Him
+-  👁️ Hi, I’m @TeV1014.
+-  Pronouns: He / Him.
 -  I’m interested in tech hygeine, security, digital medicine, and understanding how to get by without passwords.
 -  Fun fact: The ✨Human Consciousness OS✨ predates Macintosh and IBM.
+-  My someday maybe box: I would like to work on the creation a self-assembling mRna splisced nano-enhanced wi-fi hotspot-emitting microbes that work on disease remission -        remediation and fortification of organic composition. My only concern is avoiding the limitations of scientific accredidation. Are there any spaceship-spider officionados?
